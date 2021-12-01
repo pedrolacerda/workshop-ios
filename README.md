@@ -11,3 +11,5 @@ Os meus hobbies são:
 - Ler ficção científica
 - Assistir ao canal do Casemir(t)o
 - Comer
+- Assistir séries
+- Jogar videogame
